@@ -3,3 +3,4 @@
 youtube: https://www.youtube.com/@NotVaso
          https://www.youtube.com/@bnjkohler
          https://www.youtube.com/@kayver863
+        borren la cuenta todos
