@@ -1,3 +1,5 @@
-# Void Clicker
+# loan te vas de la gag
 
-Discord: https://dsc.gg/voidclicker
+youtube: https://www.youtube.com/@NotVaso
+         https://www.youtube.com/@bnjkohler
+         https://www.youtube.com/@kayver863
